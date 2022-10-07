@@ -1,1 +1,1 @@
-**Strong** __Strong__
+this is kinda confusing rn
